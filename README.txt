@@ -1,0 +1,1 @@
+Es la versión principal de Dralyx, si no funciona intenta con el otro link
